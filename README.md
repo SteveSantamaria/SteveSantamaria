@@ -5,7 +5,7 @@
 - 📫 How to reach me ... email: Oldatol4l@gmail.com
 - 😄 Pronouns: ... He/Him
 - ⚡ Fun fact: ... I have actually never broken any bones in my body....so far.....
-
+- 📸 Hobbies : ... I love photography 
 <!---
 SteveSantamaria/SteveSantamaria is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
